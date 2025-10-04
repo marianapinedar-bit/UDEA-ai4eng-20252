@@ -1,4 +1,4 @@
-Integrante, cedula, programa:
+Integrante, cédula, programa:
 
 Miguel Monsalve Marín, 1018227607, Ingeniería Industrial
 
