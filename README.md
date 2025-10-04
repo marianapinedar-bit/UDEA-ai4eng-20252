@@ -1,6 +1,6 @@
 Integrante, cédula, programa:
 
-Miguel Monsalve Marín, 1018227607, Ingeniería Industrial
+Miguel Ángel Monsalve Marín, 1018227607, Ingeniería Industrial
 
 Mariana Pineda Ríos, 1001743873, Ingeniería Industrial
 
