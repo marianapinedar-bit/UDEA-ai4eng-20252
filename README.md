@@ -6,6 +6,6 @@ Mariana Pineda Ríos, 1001743873, Ingeniería Industrial
 
 Yojany Katerine Zapata Salazar, 1007610517, Ingeniería Industrial
 
-Link vídeo entrega 2: https://youtu.be/iA3iNbeQ990?si=o-EuAmlpQjpROBmy
+Enlace vídeo entrega 2: https://youtu.be/iA3iNbeQ990?si=o-EuAmlpQjpROBmy
 
-Link vídeo entrega final: https://youtu.be/_sgHoFaLXX0
+Enlace vídeo entrega final: https://youtu.be/_sgHoFaLXX0
